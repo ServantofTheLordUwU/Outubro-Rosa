@@ -1,2 +1,1 @@
-# Outubro-Rosa
-fghjk
+Outubro Rosa
